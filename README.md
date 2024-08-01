@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on everyone who likes and uses my current projects(CPRC) better to know russia(i'am suck at english)
 - 📫 How to reach me @catmengi in telegramm or catengineerforever@gmail.com
 - 😄 Pronouns: hmmmm, none.. Maybe: he/him?
-- ⚡ Fun fact: i'am 14 y.o)
+- ⚡ Fun fact: i'm 14 y.o)
 
 <!---
 catmengi/catmengi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
