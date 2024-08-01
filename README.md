@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @catmengi
 - 👀 I’m interested in C developing for PC and MCU
-- 💞️ I’m looking to collaborate on everyone who likes and uses my current projects(CPRC)
+- 💞️ I’m looking to collaborate on everyone who likes and uses my current projects(CPRC) better to know russia(i'am suck at english)
 - 📫 How to reach me @catmengi in telegramm or catengineerforever@gmail.com
 - 😄 Pronouns: hmmmm, none.. Maybe: he/him?
 - ⚡ Fun fact: i'am 14 y.o)
